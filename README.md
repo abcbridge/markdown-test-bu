@@ -1,6 +1,8 @@
+# Fahrrad Berlin Sommer Wasser
 
 Kurs F24419: [Berlin. Die Wasserstadt Berlin und die Herausforderungen der Stadtentwicklung.](https://www.forum-unna.de/warenkorb/kurs/BerlinDieWasserstadtBerlinunddieHerausforderungenderStadtentwicklung/F24419)
 
+| A         | B     | 
 |---------|---------|
 |Kursbeginn 	|Mo., 24.06.2024 |
 |Kursende 	|Fr., 28.06.2024 |
