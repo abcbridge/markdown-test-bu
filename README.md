@@ -1,3 +1,19 @@
+
+Kurs F24419: [Berlin. Die Wasserstadt Berlin und die Herausforderungen der Stadtentwicklung.](https://www.forum-unna.de/warenkorb/kurs/BerlinDieWasserstadtBerlinunddieHerausforderungenderStadtentwicklung/F24419)
+
+|---------|---------|
+|Kursbeginn 	|Mo., 24.06.2024 |
+|Kursende 	|Fr., 28.06.2024 |
+|Dauer 	|5 Tage |
+|Unterrichtseinheiten 	|40 |
+|Mindestteilnehmerzahl 	|10 |
+|Höchstteilnehmerzahl 	|18 |
+|Kursgebühr ohne Unterkunft 	|389,00 € |
+
+[Programmablauf-Flyer](https://www.forum-unna.de/fileadmin/dokumente/Programmablauf_Berlin._Die_Wasserstadt_-_Bildungsurlaub_2024.pdf)
+
+
+
 March BUs
 
 # Verreisen & Klarkommen
